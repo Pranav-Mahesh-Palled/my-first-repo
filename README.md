@@ -7,3 +7,5 @@ I'm now making a change directly on GitHub, not locally.
 I'm trying to actively contribute in this repo.
 
 I'm Actively Building AI Full Stack Projects along with AI integrations in them.
+
+I Post weekly on LinkedIn in order to maximize the impressions and reach maximum people, Every Monday at 7AM IST I will post.
