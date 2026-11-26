@@ -12,6 +12,6 @@ I Post weekly on LinkedIn in order to maximize the impressions and reach maximum
 
 I want to improve my communication slills, so i am trying to learn how to communicate in english fluently and also learning grammer along with it and practing to communicate.
 
-Consistency is the key to success
-
 Kaizen is the Most Powerful Concept of Japanese to improve with serious small steps
+
+Consistency is the key to success
