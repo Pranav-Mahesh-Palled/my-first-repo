@@ -15,3 +15,5 @@ I want to improve my communication slills, so i am trying to learn how to commun
 Kaizen is the Most Powerful Concept of Japanese to improve with serious small steps
 
 Consistency is the key to success
+
+Build Discipline, Motivation comes running 
